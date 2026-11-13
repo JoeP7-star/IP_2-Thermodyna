@@ -18,9 +18,5 @@ MIT License. See the [LICENSE](LICENSE) file for details.
 
 
 
-Snicker
-WE love Murats shower routine!
-NO
-
-Joep houdt van twix
-githesh houdt van snickers
+WE love Murats shower routine
+Murat stinky feet
